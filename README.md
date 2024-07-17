@@ -1,1 +1,0 @@
-# gestionyerevan.github.io
